@@ -1,4 +1,4 @@
-# ** Anastasia Yarashuk ** <h1> tag
+# Anastasia Yarashuk
 *Phone:* +375292096342
 *Email:* anastasia.yarashukbfmv@gmail.com
 
